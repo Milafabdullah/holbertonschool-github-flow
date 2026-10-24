@@ -1,1 +1,1 @@
-Collaboration requires clear communication and well-defined responsibilities.
+Collaboration is essential.
